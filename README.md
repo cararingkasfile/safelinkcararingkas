@@ -1,0 +1,2 @@
+# safelinkcararingkas
+safelink cara ringkas
